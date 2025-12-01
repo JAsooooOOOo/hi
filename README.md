@@ -1,5 +1,5 @@
 # DUDE'S EPIC FUCKIN GITHUB
-Hi,Call me Dude.More info on links  ---> [strawpage](https://hihellobyenowhat.straw.page) (or my [guns.lol](https://guns.lol/dude2003) ) .
+Hi,Call me Dude .More info on links  ---> [strawpage](https://hihellobyenowhat.straw.page) (or my [guns.lol](https://guns.lol/dude2003) ) .
 
 I'm so cool, trust me on that.
 
@@ -11,3 +11,10 @@ Uhhhhhh I usually just lurk around or with @dragondudes333 . I enjoy when people
 ![image alt](https://github.com/JAsooooOOOo/hi/blob/main/artworks-YaIlB9adRwr1WdTO-gziMxA-t500x500.jpg?raw=true)
 
 ![](https://komarev.com/ghpvc/?username=JAsooooOOOo&abbreviated=true)
+
+
+
+![image alt](https://github.com/JAsooooOOOo/JAsooooOOOo/blob/main/postal-braindamaged-postal%20(1).gif?raw=true) ![image alt](https://github.com/JAsooooOOOo/JAsooooOOOo/blob/main/postal-braindamaged-postal.gif?raw=true)
+
+
+Im into Postal, madcom, friday the thirteen and more.
